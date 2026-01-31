@@ -5,4 +5,4 @@ first iteration
 ![katha-brand-board](https://github.com/user-attachments/assets/2bd9af1c-19f3-478f-bc2b-daec036d4cd2)
 
 second iteration
-![katha-second-iteration](https://github.com/user-attachments/assets/8de5e1f3-95e0-4c45-b103-57ba0db33644)
+![katha-second-iteration](https://github.com/user-attachments/assets/8418526f-c317-4222-918c-ff9fb9c5683b)
